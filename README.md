@@ -1,0 +1,1 @@
+http://eugeny-linnik.github.io/rsschool-cv/cv
